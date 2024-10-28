@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Aakash Boppana
-- 👀 I’m Professional in   Web Developement, APP Development, Graphic Designs, Wordpress Development, E-Commerce Development, Any Lind of Web Or App Development
+- 👀 I’m Professional in   Web Developement, APP Development, Graphic Designs, Wordpress Development, E-Commerce Development, Any Kind of Web Or App Development
 - 🌱 I’m currently working  as Freelancer
 - 💞️ I’m looking to collaborate on Web Developement, APP Development, Graphic Designs, Wordpress Development, E-Commerce Development, Any Lind of Web Or App Development
 - 📫 How to reach me  Call +91 9642223322 OR Mail Me:- webdesigningstudioindia@gmail.com
